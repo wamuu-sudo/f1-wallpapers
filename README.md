@@ -1,2 +1,2 @@
 # f1-wallpapers
-F1 Wallpapers COllection by Hyda
+F1 Wallpapers Collection by Hyda
